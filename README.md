@@ -1,1 +1,2 @@
-# github_novel_story
+Read the final story here:
+http://qz.com/335942
